@@ -1,6 +1,6 @@
 ## Personal stuff
 
--i do g
+- i do g
 
 ## Contact info
 [Discord](https://discord.com/users/540707069108420648)
