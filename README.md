@@ -1,6 +1,6 @@
-## Soom coolio website
+## Personal stuff
 
-this is my website, where i do websity things
+-i do g
 
 ## Contact info
 [Discord](https://discord.com/users/540707069108420648)
